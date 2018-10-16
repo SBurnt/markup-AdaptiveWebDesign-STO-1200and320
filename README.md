@@ -1,0 +1,1 @@
+# markup-AdaptiveWebDesign-STO-1200and320
